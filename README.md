@@ -1,2 +1,11 @@
 # Sus
-Sus
+
+Exactly 1000000 lines of `sus`
+
+# What was the purpose of the project?
+
+It's very sus
+
+# Credit
+
+Credit to Cyan, Red and Yellow. I'm sure I saw purple vent tho. Sus?
