@@ -8,4 +8,4 @@ It's very sus
 
 # Credit
 
-Credit to Cyan, Red and Yellow. I'm sure I saw purple vent tho. Sus?
+Credit to Cyan, Red and Yellow. I'm sure I saw Purple vent tho. Sus?
